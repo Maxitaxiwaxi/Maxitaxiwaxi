@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Maxitaxiwaxi
-- 👀 I’m interested in learning about cumputers science
+- 👀 I’m interested in learning about computers science
 - 🌱 I’m currently learning in school is computer science
 - 💞️ I’m looking to collaborate with people who are nice and know how to use the materials
 - 📫 How to reach me is 
